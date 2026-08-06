@@ -1,2 +1,0 @@
-# verlskiee
-apa aja
